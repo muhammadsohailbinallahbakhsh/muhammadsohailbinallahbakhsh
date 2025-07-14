@@ -1,4 +1,4 @@
-![Header](https://drive.google.com/file/d/1oBffGIe2bSe1xTSvStF7IHUrM6V_gjnW/view?usp=sharing)
+![Header](https://raw.githubusercontent.com/muhammadsohailbinallahbakhsh/muhammadsohailbinallahbakhsh/refs/heads/main/final-banner-v01.png)
 # 👋 Hi there, I'm Muhammad Sohail
 
 ## 🚀 About Me
